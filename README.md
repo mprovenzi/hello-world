@@ -6,4 +6,4 @@ Maybe you'll want to listen.
 
 Surely you'll not want to miss a bit of it.
 
-Nor do I.
+Nor do I. Or do I?
